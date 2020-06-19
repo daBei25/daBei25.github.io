@@ -7,3 +7,6 @@ die wesentlich älter als Donald Duck und die anderen Figuren ist. Dagobert ist 
 * sparsam
 * geizig
 * geldgierig
+
+> Für mich ist es keine Kunst, Geld zu machen. 
+> Ich bin reich geworden, weil ich zäher war als die Zähesten und schlauer als die Schlauesten.
