@@ -10,3 +10,5 @@ die wesentlich älter als Donald Duck und die anderen Figuren ist. Dagobert ist 
 
 > Für mich ist es keine Kunst, Geld zu machen. 
 > Ich bin reich geworden, weil ich zäher war als die Zähesten und schlauer als die Schlauesten.
+
+<img src="https://cdn.meine-vrm.de/j10iOzZgj6ULZ7bfbgWvXssSqiI=/480x240/smart/819%2F18735%2F18735875%2F36581502.jpg"/>
